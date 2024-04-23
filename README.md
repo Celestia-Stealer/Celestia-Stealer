@@ -4,7 +4,7 @@
 
 Cat Stealer is a powerful stealer created by French people here is their social network:
 
-Discord: https://discord.gg/cat-room
+Discord: https://discord.gg/cat-home
 Telegrame : https://t.me/stealerfr
-Vouches : https://t.me/+ayNu4PFyijEzOGVk
+Vouches : [https://t.me/catvouche](https://t.me/catvouche)
 
